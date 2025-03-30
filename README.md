@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently working 
+👋 Hey there! I'm Vicky Mishra, a Data & Business Analyst with a knack for turning raw numbers into actionable insights. I specialize in data visualization, trend analysis, and business intelligence, helping organizations make informed decisions
 
 
 ## 🌐 Socials:
